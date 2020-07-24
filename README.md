@@ -4,9 +4,9 @@
 
 Hi, I'm José - a trustworthy, zealous and very capable software engineer. I can assume any leadership and coordination position and I'm looking to be inspired, to envision the uncommon, to work hard for things that are worthwhile and to be surrounded by those who bring out the best in me. 🤙 When I'm not in front of a computer screen, I'm probably surfing 🏄, writing 📓, petting dogs 🐕, fighting for social causes #️⃣ or playing drums 🥁.
 
-🧬 Open-source contributor
-🚀 Strong startup and enterprise background
-📝 Managed development teams
+🧬 Open-source contributor <br />
+🚀 Strong startup and enterprise background <br />
+📝 Managed development teams <br />
 
 ## How I work
 I see working as ongoing education. I am always looking for opportunities to work with those who are willing to share their knowledge as much as I want to learn. ✅
