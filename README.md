@@ -9,7 +9,7 @@ Hi, I'm José - a trustworthy, zealous, and very capable software engineer. I ca
 📝 Managed development teams <br />
 
 ## How I work
-I see working as an ongoing education. I am always looking for opportunities to work with those who are willing to share their knowledge as much as I want to learn. ✅ My goal is to create something exhilarating while co-working with inspirational people. ✨ 🌈
+I see working as an ongoing education. I am always looking for opportunities to work with those who are willing to share their knowledge as much as I want to learn. ✅ <br /><br /> My goal is to create something exhilarating while co-working with inspirational people. ✨ 🌈
 
 ## Get in touch
 - Twitter: https://twitter.com/jcunhafonte
