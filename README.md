@@ -8,9 +8,9 @@ Hi, I'm José - a trustworthy, zealous, and very capable software engineer. I ca
 🚀 Strong startup and enterprise background <br />
 📝 Managed development teams <br />
 
-## How I work
+## Work
 I see working as an ongoing education. I am always looking for opportunities to work with those who are willing to share their knowledge as much as I want to learn. ✅ <br /><br /> My goal is to create something exhilarating while co-working with inspirational people. ✨ 🌈
 
-## Get in touch
+## Social
 - Twitter: https://twitter.com/jcunhafonte
 - Email: [jcunhafonte@gmail.com](mailto:jcunhafonte@gmail.com)
