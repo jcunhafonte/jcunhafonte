@@ -17,6 +17,7 @@ I see working as an ongoing education. I am always looking for opportunities to 
 When I'm not in front of a computer screen, I'm probably surfing 🏄, writing 📓, petting dogs 🐕, fighting for social causes #️⃣ or playing drums 🥁.
 
 <br/>
+<br/>
 My goal is to create something exhilarating while co-working with inspirational people. ✨ 🌈
 
 ## Social
