@@ -8,13 +8,13 @@ Hi, I'm José - a trustworthy, zealous, and very capable software engineer. I ca
 🚀 Strong startup and enterprise background <br />
 📝 Managed development teams <br />
 
-<br/><br/>
+<br/>
 I see working as an ongoing education. I am always looking for opportunities to work with those who are willing to share their knowledge as much as I want to learn. ✅
 
-<br/><br/>
+<br/>
 When I'm not in front of a computer screen, I'm probably surfing 🏄, writing 📓, petting dogs 🐕, fighting for social causes #️⃣ or playing drums 🥁.
 
-<br/><br/>
+<br/>
 My goal is to create something exhilarating while co-working with inspirational people. ✨ 🌈
 
 ## Social
