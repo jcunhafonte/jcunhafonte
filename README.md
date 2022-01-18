@@ -2,7 +2,7 @@
 
 ### 🚧 Build, Maintain, Repeat.
 
-Hi, I'm José - a trustworthy, zealous, and very capable lead software engineer. I can assume any leadership and coordination position. I'm always looking to be inspired, to envision the uncommon, to work hard for things that are worthwhile, and to be surrounded by those who bring out the best in me. 🤙 <br/><br />
+Hi, I'm José - a trustworthy, zealous, and very capable principal software engineer. I can assume any leadership and coordination position. I'm always looking to be inspired, to envision the uncommon, to work hard for things that are worthwhile, and to be surrounded by those who bring out the best in me. 🤙 <br/><br />
 
 🧬 Open-source contributor <br />
 🚀 Strong startup and enterprise background <br />
