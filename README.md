@@ -6,6 +6,7 @@ Hi, I'm José from Portugal! I'm always looking to be inspired, to envision the 
 
 
 🧬 Give back to the Dev ecosystem as an open-source contributor;
+
 🚀 Bring my startup and enterprise experience to any project, big or small;
 📝 Manage dev teams, because I believe people are not blockers. Ever.
 
