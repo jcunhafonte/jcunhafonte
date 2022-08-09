@@ -2,11 +2,12 @@
 
 ### 🚧 Build, Maintain, Repeat.
 
-Hi, I'm José - a trustworthy, zealous, and very capable principal software engineer. I can assume any leadership and coordination position. I'm always looking to be inspired, to envision the uncommon, to work hard for things that are worthwhile, and to be surrounded by those who bring out the best in me. 🤙 <br/><br />
+Hi, I'm José from Portugal! I'm always looking to be inspired, to envision the uncommon, and to work hard for worthwhile things. Somehow I always find myself surrounded by people like me, who bring out the best in me. 🤙 My team knows I lead from behind because that's my style: Trust and Empower.
 
-🧬 Open-source contributor <br />
-🚀 Strong startup and enterprise background <br />
-📝 Managed development teams <br />
+
+🧬 Give back to the Dev ecosystem as an open-source contributor;
+🚀 Bring my startup and enterprise experience to any project, big or small;
+📝 Manage dev teams, because I believe people are not blockers. Ever.
 
 
 <br/>
