@@ -22,8 +22,3 @@ My goal is to create something exhilarating while co-working with inspirational 
 
 
 I don't know why I always end up creating exhilarating things alongside inspiring people. Is it just luck? 🍀 Or is it something more... ✨ 🌈
-
-
-## Social
-- Twitter: https://twitter.com/jcunhafonte
-- Email: [jcunhafonte@gmail.com](mailto:jcunhafonte@gmail.com)
